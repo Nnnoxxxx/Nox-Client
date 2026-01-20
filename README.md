@@ -1,1 +1,1 @@
-join the dc https://discord.gg/eshBZSeeSH for free nothing : P
+Please use this correctly, be mature and dont take advantage of this menu or anything else.
